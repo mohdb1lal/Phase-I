@@ -1,1 +1,0 @@
-ChipELearning by Ningel85 on Thingiverse: https://www.thingiverse.com/thing:2427668
